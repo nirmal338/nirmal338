@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with professional 
 - 💬 Ask me about "how to work in advancement of technology"
 - 📫 How to reach me:nirmalchaulagain1991@outlook.com
-- ⚡ Fun fact: love o reads non-fiction books
+- ⚡ Fun fact: reads non-fiction books
