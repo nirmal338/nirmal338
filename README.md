@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on my projects
 - 🤔 I’m looking for help with professional 
 - 💬 Ask me about "how to work in advancement of technology"
-- 📫 How to reach me:nirmalchaulagain1991@outlook.com
+- 📫 How to reach me:nirmalchaulagain@outlook.com
 - ⚡ Fun fact: reads non-fiction books
